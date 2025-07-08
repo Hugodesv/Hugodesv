@@ -3,7 +3,7 @@
 - 🌱 J'apprend des trucs sur internet
 - 📫 Vous pouvez me contacter par Chronopost
 - 😄 He/Comm/it
-- ⚡ Je suis un petit zouave
+- ⚡ 1m68 mais vif
 
 <!---
 Hugodesv/Hugodesv is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
